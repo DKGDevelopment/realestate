@@ -1,5 +1,5 @@
 <?php
 
-echo "apartments";
+echo "regions";
 
 ?>
