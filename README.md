@@ -12,13 +12,13 @@ The philosophy of our company is to construct buildings that will improve reside
 
 For us, the client’s needs are always a top priority and we aim in responding to them with the same commitment and dedication, no matter the size of the project. We invest in interpersonal relationships, based on honesty, respect, consistency, professionalism and corporate social responsibility.
 
-<h3>At DKG Development :</h3>
-<b>We undertake the construction of any property</b>, no matter how big or small it is, with the same passion, applying the same quality standards and aiming for the same high-end aesthetics.
+<h3>At DKG Development :</h3><br>
+<b>We undertake the construction of any property</b>, no matter how big or small it is, with the same passion, applying the same quality standards and aiming for the same high-end aesthetics.<br>
 
-We <u>approach every new project</u> as a whole, from finding the <i>potential investment</i>, and <i>designing – constructing</i> the site, to <i>providing business consulting</i> and <i>property management</i>. We stand with you every step of the way, taking care of your interests as if they were ours.
+<b>We <u>approach every new project</u> as a whole</b>, from finding the <i>potential investment</i>, and <i>designing – constructing</i> the site, to <i>providing business consulting</i> and <i>property management</i>. We stand with you every step of the way, taking care of your interests as if they were ours.
 
-We invest in innovation, in the uniqueness of the architectural proposal, in innovative methods of construction and new materials.
+<b>We invest in innovation</b>, in the uniqueness of the architectural proposal, in innovative methods of construction and new materials.
 
-We adhere strictly to the time and financial frameworks we have agreed on, maintaining a high level of construction quality.
+<b>We adhere strictly to the time and financial frameworks</b> we have agreed on, maintaining a high level of construction quality.
 
-We trust only highly qualified and experienced executives to create successful partnerships and provide our clients with the best possible service.
+<b>We trust only highly qualified and experienced executives</b> to create successful partnerships and provide our clients with the best possible service.
